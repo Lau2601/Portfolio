@@ -11,4 +11,4 @@ Kindly,
 
 Laura Acevedo
 
-[l.acevedo2601@gmail.com]
+l.acevedo2601@gmail.com
